@@ -1,3 +1,5 @@
+[https://western-warlock-494.notion.site/717ef2f973144ef28942d836217a9e37](https://www.notion.so/e44c4d3269ec4b828be8b69c95fecf96?p=717ef2f973144ef28942d836217a9e37&pm=c)
+
 # 8월 1일 스터디
 
 생성일: 2022년 8월 1일 오전 2:42
